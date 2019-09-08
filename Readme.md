@@ -6,4 +6,4 @@ Education
 
 Boston University (http://www.bu.edu/)
 
-Research Interests: Index Insurance.
+Research Interests: Index Insurance.......
